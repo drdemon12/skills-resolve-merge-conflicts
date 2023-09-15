@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+Evil Demon had some conflict
